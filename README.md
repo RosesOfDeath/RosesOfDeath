@@ -43,6 +43,25 @@
 
 ! >[any sexualized name]< ! 
 
+. "Hey don't call me this NAME! "
+
+
+. 
+
+
+
+. 
+
+
+
+
+.  
+
+
+☯ o. another info info! ☫◮
+. AGE - *▀▄▀▄* . !! (Ooopsie! this info file box is not safe to click! go away!) 
+. nationality ⌗ . // 🇻🇳 VIETNAM! . 
+
 
 
  
