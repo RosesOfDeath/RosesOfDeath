@@ -60,7 +60,12 @@
 
 ☯ o. another info info! ☫◮
 . AGE - *▀▄▀▄* . !! (Ooopsie! this info file box is not safe to click! go away!) 
-. nationality ⌗ . // 🇻🇳 VIETNAM! . 
+
+
+. nationality ⌗ . // 🇻🇳 VIETNAM! .
+
+
+I GIVE UP I LOST ALL OF MY SAVE. :(
 
 
 
