@@ -67,6 +67,9 @@
 
 I GIVE UP I LOST ALL OF MY SAVE. :(
 
+![Screenshot_2024-12-08-14-39-01-992-edit_com google android googlequicksearchbox](https://github.com/user-attachments/assets/7e96d9e9-f375-49f3-83da-74d331a727d8)
+
+
 
 
  
