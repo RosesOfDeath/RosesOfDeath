@@ -1,6 +1,7 @@
 # well well! welcome^^
 
 ⧼══════════════════════════⧽
+
 ![Không Có Tiêu Đề175_20241128120226](https://github.com/user-attachments/assets/19dc6270-df12-4911-aea1-6ad3fb837385)
 
 ⧼══════════════════════════⧽
@@ -115,8 +116,6 @@ orcapaint -
 
 
 # random images bcuz idk what to said 😛😛😛
-
-
  
 ![Không Có Tiêu Đề189_20241209153326](https://github.com/user-attachments/assets/3b3a290e-7af6-4652-923c-5f71227a267b)
 
