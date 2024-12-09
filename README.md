@@ -12,34 +12,34 @@
 
 ➤ . 『┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅』. ←
 
-Name! . (**[pronouns](https://pronouns.cc/@Renziiyayyy)** ) 
+# Name! . (**[pronouns](https://pronouns.cc/@Renziiyayyy)** ) 
 
 𖠁 . Renzi / Ren , Opposite , Ori , Tessen , Zeta and Etc! 
 
 ⚌ . ⚊⚊⚊⚋ᯓ⚊⚋⚋⚋⚋⚋⚋⚋⚋⚋⚋⚋ . ⚌
 
-☓ - Fandoms! (I don't support any problematic people in those fandoms) (**[pronouns](https://pronouns.cc/@Renziiyayyy)**) 
+# ☓ - Fandoms! (I don't support any problematic people in those fandoms) (**[pronouns](https://pronouns.cc/@Renziiyayyy)**) 
 
 ۝ . dandy world , Phighting , Omori , kaleidoscope , analog horror , pokemon , block tales, etc
 
 . ⛓️୧. ࿐⚊⚋⚊⚋⚋⚊⚋⚋⚋⚊⚊༄. ୨🐦 . 
 
 
-. ༄ dni list ▶ ᘏᘎ
+# . ༄ dni list ▶ ᘏᘎ
 
-⌑ . I block / hide freely , ​᭄ too sensitive , ragebaiter ⌑⟭
+>> ⌑ . I block / hide freely , ​᭄ too sensitive , ragebaiter ⌑⟭
 
 ⫸ . ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏ . ⫷
 
-░▒▓ rbyi ▓▒░
+# ░▒▓ rbyi ▓▒░
 
 ༺﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏༻
 
 
 - . I may either acting weird or awkward! please tell me if you felt uncomfortable!! ,
-- 
+>> - 
 - w2i! well alot of time I was afk or either offtab and c+h is free! unless I with a  frienddd (ask please)
-- 
+>> - 
 - , I had a semi cd! please do not try to cover me ! if y doing it in purpose I will hide you,
 
 - don't try roleplay with me! I am not interested://
@@ -47,42 +47,64 @@ Name! . (**[pronouns](https://pronouns.cc/@Renziiyayyy)** )
   . ⛓️𓆪⚊⚊⚊⚊⚊⚊⚊⚊⚋⚊⚊⚊⚊☽☔︎︎
 
 
-families ^^
+# families ^^
 . 
 
-C - my online mother omg hi
+♥︎ C - 
 
-Kyo/Mayo - my adopted daughter^^
+>> my online mother omg hi
 
-Fancyi - ehh my online sonn^^
+ᰔ Kyo/Mayo - 
+
+>> my adopted daughter^^
+
+ෆ Fancyi - 
+
+>> ehh my online sonn^^
 
 🌊⌑﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏ ⧎ . 
 
-Friends ▼
+# Friends ▼
 
-Poison/Shelly - YOU GAY!! 💙💙🤍💚💙
+Poison/Shelly - >>YOU GAY!! 💙💙🤍💚💙
 
-Coron - my #1 opp / hj
+Coron -
 
-Vyun - I stalk y hi
+>> my #1 opp / hj
 
-Fishie - fish guy!! / j
+Vyun -
 
-Avery/Pea - pee pee pee😛😛
+>> I stalk y hi
 
-Lamb - free meat guys 
+Fishie -
+
+>> fish guy!! / j
+
+Avery/Pea -
+
+>> pee pee pee😛😛
+
+Lamb -
+
+>> free meat guys 
 
 ⛓️►⌗⚊⚊⚊⚊⚊⚊⚊⚊⚊⚊⚊⚊⚊⚊♯⛓️
 
 
 
-⛓️▼ cool perosn trust ✦✛
+# ⛓️▼ cool perosn trust ✦✛
 
-rae - omg oomfie 😀😀😀
+rae - 
 
-nanasae smth - I STALK you 😛
+>> omg oomfie 😀😀😀
 
-orcapaint - Dude YOU'RE EVERYWHERE
+nanasae smth - 
+
+>> I STALK you 😛
+
+orcapaint - 
+
+>> Dude YOU'RE EVERYWHERE
 
 
 
@@ -90,7 +112,7 @@ orcapaint - Dude YOU'RE EVERYWHERE
 ☮︎︎ . ⚑⌑﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏☘︎
 
 
-random images bcuz idk what to said 😛😛😛
+# random images bcuz idk what to said 😛😛😛
 
 
  
