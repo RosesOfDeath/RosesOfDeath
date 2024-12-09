@@ -18,7 +18,82 @@ Name! . (**[pronouns](https://pronouns.cc/@Renziiyayyy)** )
 
 ⚌ . ⚊⚊⚊⚋ᯓ⚊⚋⚋⚋⚋⚋⚋⚋⚋⚋⚋⚋ . ⚌
 
-☓ - Fandoms! (I don't support any problematic people in those fandoms) **[pronouns](https://pronouns.cc/@Renziiyayyy)**
+☓ - Fandoms! (I don't support any problematic people in those fandoms) (**[pronouns](https://pronouns.cc/@Renziiyayyy)**) 
 
 ۝ . dandy world , Phighting , Omori , kaleidoscope , analog horror , pokemon , block tales, etc
+
+. ⛓️୧. ࿐⚊⚋⚊⚋⚋⚊⚋⚋⚋⚊⚊༄. ୨🐦 . 
+
+
+. ༄ dni list ▶ ᘏᘎ
+
+⌑ . I block / hide freely , ​᭄ too sensitive , ragebaiter ⌑⟭
+
+⫸ . ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏ . ⫷
+
+░▒▓ rbyi ▓▒░
+
+༺﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏༻
+
+
+- . I may either acting weird or awkward! please tell me if you felt uncomfortable!! ,
+- 
+- w2i! well alot of time I was afk or either offtab and c+h is free! unless I with a  frienddd (ask please)
+- 
+- , I had a semi cd! please do not try to cover me ! if y doing it in purpose I will hide you,
+
+- don't try roleplay with me! I am not interested://
+
+  . ⛓️𓆪⚊⚊⚊⚊⚊⚊⚊⚊⚋⚊⚊⚊⚊☽☔︎︎
+
+
+families ^^
+. 
+
+C - my online mother omg hi
+
+Kyo/Mayo - my adopted daughter^^
+
+Fancyi - ehh my online sonn^^
+
+🌊⌑﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏ ⧎ . 
+
+Friends ▼
+
+Poison/Shelly - YOU GAY!! 💙💙🤍💚💙
+
+Coron - my #1 opp / hj
+
+Vyun - I stalk y hi
+
+Fishie - fish guy!! / j
+
+Avery/Pea - pee pee pee😛😛
+
+Lamb - free meat guys 
+
+⛓️►⌗⚊⚊⚊⚊⚊⚊⚊⚊⚊⚊⚊⚊⚊⚊♯⛓️
+
+
+
+⛓️▼ cool perosn trust ✦✛
+
+rae - omg oomfie 😀😀😀
+
+nanasae smth - I STALK you 😛
+
+orcapaint - Dude YOU'RE EVERYWHERE
+
+
+
+
+☮︎︎ . ⚑⌑﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏☘︎
+
+random images bcuz idk what to said 😛😛😛
+
+
+ 
+![Không Có Tiêu Đề189_20241209153326](https://github.com/user-attachments/assets/3b3a290e-7af6-4652-923c-5f71227a267b)
+
+
 
