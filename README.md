@@ -66,7 +66,9 @@
 
 # Friends ▼
 
-Poison/Shelly - >>YOU GAY!! 💙💙🤍💚💙
+Poison/Shelly - 
+
+>> YOU GAY!! 💙💙🤍💚💙
 
 Coron -
 
