@@ -89,6 +89,12 @@ orcapaint - Dude YOU'RE EVERYWHERE
 
 ☮︎︎ . ⚑⌑﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏☘︎
 
+other links (or one) 
+
+[pronouns](https://pronouns.cc/@Renziiyayyy) 
+
+[discord](
+
 random images bcuz idk what to said 😛😛😛
 
 
