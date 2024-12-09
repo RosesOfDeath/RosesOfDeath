@@ -12,4 +12,13 @@
 
 ➤ . 『┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅』. ←
 
-Name! . (
+Name! . (**[pronouns](https://pronouns.cc/@Renziiyayyy)** ) 
+
+𖠁 . Renzi / Ren , Opposite , Ori , Tessen , Zeta and Etc! 
+
+⚌ . ⚊⚊⚊⚋ᯓ⚊⚋⚋⚋⚋⚋⚋⚋⚋⚋⚋⚋ . ⚌
+
+☓ - Fandoms! (I don't support any problematic people in those fandoms) **[pronouns](https://pronouns.cc/@Renziiyayyy)**
+
+۝ . dandy world , Phighting , Omori , kaleidoscope , analog horror , pokemon , block tales, etc
+
