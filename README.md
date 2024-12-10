@@ -114,6 +114,11 @@ orcapaint -
 
 ☮︎︎ . ⚑⌑﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏☘︎
 
+# more words from me. 
+
+
+### ✷ . you can c+h with me! as long I had c+h comf in my name bcuz mostly I am alone so yeah,,, 
+
 
 # random images bcuz idk what to said 😛😛😛
  
