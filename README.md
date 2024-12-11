@@ -45,6 +45,8 @@
 
 - don't try roleplay with me! I am not interested://
 
+- pretty extremely hatred,, recommended not to making mocking jokes about me EVEN YOU'RE MY BSF. 
+
   . ⛓️𓆪⚊⚊⚊⚊⚊⚊⚊⚊⚋⚊⚊⚊⚊☽☔︎︎
 
 
