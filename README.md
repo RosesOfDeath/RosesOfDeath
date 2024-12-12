@@ -45,9 +45,21 @@
 
 - don't try roleplay with me! I am not interested://
 
-- pretty extremely hatred,, recommended not to making mocking jokes about me EVEN YOU'RE MY BSF. 
+- pretty extremely angry or overreacting,, recommended not to making mocking jokes about me EVEN YOU'RE MY BSF. 
+
+
 
   . ⛓️𓆪⚊⚊⚊⚊⚊⚊⚊⚊⚋⚊⚊⚊⚊☽☔︎︎
+
+ ### weird behaviors 
+
+>> ###### . when I don't like someone any more I will leave them alone or don't talk with them anym. this sometimes happens to my bsfs when I am uncomf or disappointed. 
+>>
+>>
+>> ###### when I am cuddling with y when I suddenly stand up or changing my face in pony town to annoyed when you're with someone I don't know,,that mean I had feeling uncomf either don't like that person.
+>
+> #### when I move away when I saw you w/ someone. well at this point I had thought y had someone with so I will move away.. 
+ 
 
 
 # families ^^
