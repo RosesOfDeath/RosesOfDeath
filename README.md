@@ -1,3 +1,6 @@
+> ###### 𝙈𝙤𝙨𝙩𝙡𝙮 𝙞𝙬𝙘 / 𝙙𝙣𝙞𝙪𝙛 𝙡𝙤𝙡𝙡𝙡 ^^
+
+
 # well well! welcome^^
 
 ⧼══════════════════════════⧽
@@ -8,14 +11,14 @@
 
 "oh! hey! dear strangers! or not.? welcome and welcome back to this ***REPOSITORY*** felt free to wander! "
 
-【 "let's start with hmmm.. oh! Name!" 】
+【 "let's start with hmmm.. oh! Name!" 】-𝑂𝑝𝑝𝑜𝑠𝑖𝑡𝑒
 
 
 ➤ . 『┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅』. ←
 
 # Name! . (**[pronouns](https://pronouns.cc/@Renziiyayyy)** ) 
 
-𖠁 . Renzi / Ren , Opposite , Ori , Tessen , Zeta and Etc! 
+𖠁 . 𝘙𝘦𝘯𝘻𝘪 / 𝗿𝗲𝗻, 𝑶𝒑𝒑𝒐𝒔𝒊𝒕𝒆 , 𝙊𝙧𝙞 , Zeta and Etc! 
 
 ⚌ . ⚊⚊⚊⚋ᯓ⚊⚋⚋⚋⚋⚋⚋⚋⚋⚋⚋⚋ . ⚌
 
