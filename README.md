@@ -136,6 +136,11 @@ orcapaint -
 
 ### ✷ . you can c+h with me! as long I had c+h comf in my name bcuz mostly I am alone so yeah,,, 
 
+###### I don't prefer comf when I am sad,, this caused from my can't comfort and I hate it,, I don't deserve comf when I can't comfort my loved ones! remind that! 
+
+
+⛓️ . ⚜︎ ᯓ﹎﹎┈═══════╌﹎﹎ 𖥑 . 𖥔
+
 
 # random images bcuz idk what to said 😛😛😛
  
