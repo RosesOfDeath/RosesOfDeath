@@ -1,4 +1,4 @@
-> ###### 𝙈𝙤𝙨𝙩𝙡𝙮 𝙞𝙬𝙘 / 𝙙𝙣𝙞𝙪𝙛 𝙡𝙤𝙡𝙡𝙡 ^^
+> ###### 𝙈𝙤𝙨𝙩𝙡𝙮 𝙞𝙬𝙘 / 𝙙𝙣𝙞𝙪𝙛 𝙡𝙤𝙡𝙡𝙡 ^^,, also I don't prefer comfort!! I don't deserve it when I can't comfort my loved ones. (scroll down for more words) 
 
 
 # well well! welcome^^
