@@ -78,9 +78,7 @@
 
 >> my adopted daughter^^
 
-ෆ Fancyi - 
-
->> ehh my online sonn^^
+~~ෆ Fancyi -  ehh my online sonn^^~~
 
 🌊⌑﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏ ⧎ . 
 
