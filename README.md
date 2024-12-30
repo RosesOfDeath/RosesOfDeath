@@ -1,4 +1,4 @@
-> ###### 𝙈𝙤𝙨𝙩𝙡𝙮 𝙞𝙬𝙘 / 𝙙𝙣𝙞𝙪𝙛 𝙡𝙤𝙡𝙡𝙡 ^^,, people don't care about me:3!! 
+> ###### delete this after making a rentry!! 
 
 
 # well well! welcome^^
